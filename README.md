@@ -1,3 +1,6 @@
+МИША УБИЛ КЕННЕДИ ИНФа 100% сам видел!! бля буду внатуре нахуй
+
+
 # Table of Contents
 - [Introduction](#introduction)
 - [User support](#user-support)
